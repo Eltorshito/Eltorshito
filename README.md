@@ -1,16 +1,21 @@
-### Hi there 👋
+## Heyy! :grin: Here's my young Github profile! Have fun!:partying_face:	
 
-<!--
-**Eltorshito/Eltorshito** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm a young learner discovering the wonders of DevWeb. :computer:	
 
-Here are some ideas to get you started:
+I'm training to become better at it! :star_struck:	
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Enjoy your visit!:star2:
+
+## Passion, activities, etc.
+
+❤ Loves partying, going out with friends and family.❤
+
+🎮Video games like Star wars The Old Republic, FFIV, Monster hunter, Street Figther and many others.🎮
+
+🎬Fan of SF and Fantasy (Star Wars, Lord of the Rings, etc.).🎬
+
+## Contact me
+I'm open to discussion and especially to advice ! 🤓
+
+
+
